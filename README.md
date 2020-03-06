@@ -4,4 +4,4 @@ LIFULL Connect is a Global Marketplace Group that operates more than 250 vertica
 We're hiring! Check out our open positions:
 https://www.lifullconnect.com/careers/
 
-You can drop me a line at xavi.almirall@lifullconnect.com
+You can also drop me a line at xavi.almirall@lifullconnect.com
